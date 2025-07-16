@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me +2348123124998
 - 😄 Pronouns: he 
-- ⚡ Fun fact: just a 16 year old 🗿
+- ⚡ Fun fact: just 17 year old 🗿
 
 <!---
 Muzybaba/Muzybaba is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
