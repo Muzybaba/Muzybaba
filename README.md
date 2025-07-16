@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Muzybaba
-- 👀 I’m interested in programming crypto computer and hacking 
+- 👀 I’m interested in programming, crypto, computer and hacking 
 - 🌱 I’m currently learning JavaScript 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me +2348123124998
+- 💞️ I’m looking to collaborate on Phantom X Labs 
+- 📫 How to reach me muzzyothmam@gmail.com
 - 😄 Pronouns: he 
 - ⚡ Fun fact: just 17 year old 🗿
 
