@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Phantom X Labs 
 - 📫 How to reach me muzzyothmam@gmail.com
 - 😄 Pronouns: he 
-- ⚡ Fun fact: just 17 year old 🗿
+- ⚡ Fun fact: 18 year old 🗿
 
 <!---
 Muzybaba/Muzybaba is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
